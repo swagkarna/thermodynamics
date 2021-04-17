@@ -1,3 +1,5 @@
+Old memories of old friend named `swagkarna`.
+All notes are property of him.<br><br><br>
 <img src=image--000.jpg />
 <img src=image--001.jpg />
 <img src=image--002.jpg />
